@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎮 Love playing games, especially those with epic stories and stunning visuals<br>🌐 Enjoy creating websites based on my mood sometimes for games, sometimes just for fun<br>🤝 Friendly and always open to chat with anyone<br>🐍 Currently learning Python, HTML, and CSS to level up my coding skills<br🎥 Like posting content on TikTok, and sometimes creating templates on CapCut<br>💬 Often enjoy discussing games and anime, especially ones with mind-blowing plots<br>⚡Fun fact : I code better while listening to anime soundtracks boosts my energy 200%!<br><br>
+🎮 Love playing games, especially those with epic stories and stunning visuals<br>🌐 Enjoy creating websites based on my mood sometimes for games, sometimes just for fun<br>🤝 Friendly and always open to chat with anyone<br>🐍 Currently learning Python, HTML, and CSS to level up my coding skills<br>🎥 Like posting content on TikTok, and sometimes creating templates on CapCut<br>💬 Often enjoy discussing games and anime, especially ones with mind-blowing plots<br>⚡Fun fact : I code better while listening to anime soundtracks boosts my energy 200%!<br><br>
 
 
 ## 🌐 Socials:
