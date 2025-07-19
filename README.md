@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎮 Suka main game, terutama yang punya cerita seru dan visual menarik<br>🌐 Hobi bikin website sesuai mood — kadang buat game, kadang website<br>🤝 Senang berteman dan terbuka buat ngobrol bareng siapa aja<br>🐍 Lagi belajar Python, HTML, dan CSS buat upgrade skill coding<br>🎥 Suka upload konten di TikTok, kadang juga bikin template di CapCut<br>💬 Sering diskusi soal game dan anime, apalagi yang punya alur mindblowing<br>⚡ Fun fact: Fokus ngoding sambil dengerin soundtrack anime bikin semangat naik 200%!<br><br>
+🎮 Love playing games, especially those with epic stories and stunning visuals<br>🌐 🌐 Enjoy creating websites based on my mood — sometimes for games, sometimes just for fun<br>🤝 Friendly and always open to chat with anyone<br>🐍 Currently learning Python, HTML, and CSS to level up my coding skills<br🎥 Like posting content on TikTok, and sometimes creating templates on CapCut<br>💬 Often enjoy discussing games and anime, especially ones with mind-blowing plots<br>⚡Fun fact : I code better while listening to anime soundtracks — boosts my energy 200%!<br><br>
 
 
 ## 🌐 Socials:
